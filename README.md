@@ -1,1 +1,9 @@
-# 4_Sem_Sorensen
+# Read ME fil for 4 semester
+
+
+
+
+
+
+
+#wow such empty
